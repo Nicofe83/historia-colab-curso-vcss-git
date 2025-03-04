@@ -30,8 +30,8 @@ conmigo", susurró antes de girarse y comenzar a correr.
 ## Capítulo 06: El refugio olvidado
 Tras correr varios minutos, llegaron a una cueva oculta tras una cascada.
 Dentro, las paredes estaban cubiertas de dibujos y símbolos que Adam no
-entendía. "Aquí estarás a salvo... por ahora", dijo el extraño, 
-cerrando la entrada con una gran piedra.
+entendía. "Aquí estarás a salvo... por ahora", dijo el extraño, cerrando la
+entrada con una gran piedra.
 
 ## Capítulo 07: Sombras en la niebla
 La bruma se cernía sobre el sendero, densa y pesada, como si intentara ocultar
