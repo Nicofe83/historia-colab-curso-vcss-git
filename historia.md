@@ -30,8 +30,8 @@ conmigo", susurró antes de girarse y comenzar a correr.
 ## Capítulo 06: El refugio olvidado
 Tras correr varios minutos, llegaron a una cueva oculta tras una cascada.
 Dentro, las paredes estaban cubiertas de dibujos y símbolos que Adam no
-entendía. "Aquí estarás a salvo... por ahora", dijo el extraño, 
-cerrando la entrada con una gran piedra.
+entendía. "Aquí estarás a salvo... por ahora", dijo el extraño, cerrando la
+entrada con una gran piedra.
 
 ## Capítulo 07: Sombras en la niebla
 La bruma se cernía sobre el sendero, densa y pesada, como si intentara ocultar
@@ -62,7 +62,12 @@ Antes la desesperante situacion que se dio de manera inesperada, Adam busco la
 calma para poder pensar con claridad asi poder analizar los simboles que quedo 
 en su piel. Lo cual podria ser importante para su destino, tal vez sea la pista 
 para una ubicacion desconocida o capas sea el siguente paso a dar, adam no le 
-quedo otra que investigar
+quedo otra que 
+
+El miedo recorrió todo su cuerpo al recordar la leyenda de su familia. 
+Ese símbolo solo aparecía en aquellos destinados a enfrentar el juicio final. 
+Intentó frotarlo, pero su piel ardió al contacto, como si el fuego lo protegiera.
+La desesperación se adueñó de su cuerpo y mente.
 
 ## Capítulo 12: El umbral prohibido
 Guiado por nuevas pistas, Adam llegó a una puerta de piedra en medio del bosque.
