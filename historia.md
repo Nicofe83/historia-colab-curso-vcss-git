@@ -62,7 +62,7 @@ Antes la desesperante situacion que se dio de manera inesperada, Adam busco la
 calma para poder pensar con claridad asi poder analizar los simboles que quedo 
 en su piel. Lo cual podria ser importante para su destino, tal vez sea la pista 
 para una ubicacion desconocida o capas sea el siguente paso a dar, adam no le 
-quedo otra que 
+quedo otra que investigar.
 
 El miedo recorrió todo su cuerpo al recordar la leyenda de su familia. 
 Ese símbolo solo aparecía en aquellos destinados a enfrentar el juicio final. 
